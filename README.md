@@ -34,7 +34,7 @@ Este eBook tem como objetivo desmistificar a Inteligência Artificial (IA) e apr
 
 ## 🚀 Resultados
 
-O eBook foi concluído e disponibilizado para download em plataformas de distribuição digital. O impacto foi positivo, com um aumento de 30% na taxa de engajamento em redes sociais e uma média de 4,5 estrelas em avaliações. Recebi feedback positivo, especialmente sobre a clareza no tratamento de conceitos complexos e a qualidade das imagens geradas pela IA.
+O eBook foi concluído e disponibilizado para download em plataformas de distribuição digital. Recebi feedback positivo, especialmente sobre a clareza no tratamento de conceitos complexos e a qualidade das imagens geradas pela IA.
 
 ---
 
